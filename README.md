@@ -7,3 +7,7 @@
 [Udactiy Certificate](https://confirm.udacity.com/DKNSDRDG)
 
 [Linkedin](https://www.linkedin.com/in/pabla-simranjit-singh-083424133/)
+
+[Bertelsmann Awards 50,000 Scholarships to Udacity Online Academy](https://www.bertelsmann.com/news-and-media/specials/50000-chances/)
+
+[Digital Campaign](https://www.youtube.com/watch?v=HWegLRt8dsY)
